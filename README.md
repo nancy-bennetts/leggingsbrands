@@ -13,7 +13,7 @@ Leggings are very popular for wearing during any activity that requires comfort 
 
 Nike makes great nikes that provide support & compression for working out. The nike ar 1 nike is popular because it has a built-in nike short (which can be removed). Other great brands of sleek stylish nikes include lululemon athletica and Nike's own Zonal Cooling series.
 
-## The 20 Best Legging Brands for Working Out and WFH 
+## The 10 Best Legging Brands for Working Out and WFH 
 Some of the best legging brands include Lululemon, Athletica, It's All Leggings, Alo Yoga, Nike, and Under Armour. All of these brands make high-quality leggings that are perfect for working out or just wearing around town.
 
 **Lululemon** is a well-known yoga brand that makes some of the best leggings on the market. Their fabric is thick and opaque, which makes them ideal for workouts or for anyone who wants a little more coverage than traditional sheer leggings. https://shop.lululemon.com
